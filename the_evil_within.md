@@ -81,3 +81,11 @@ Extras
 Cover Gallery, todas as capas das edições foram lançadas separadamente.
 Pin-Ups das criaturas e personagens chaves do jogo.
 Bio dos artistas envolvidos na obra.
+
+
+
+##  Informaçõe Boca do Inferno
+Pontuação: 3 CAVEIRAS
+
+## Links de publicações
+https://bocadoinferno.com.br/criticas/2021/11/the-evil-within-2015/
